@@ -2,7 +2,7 @@
  
 - 👀 I’m interested in and tecnology about a lot of things, hardwares, softwares, engineering like motors and understanding like the things working, now I'm dedicat more about knowledge of develops such as full stack.
 
-- 🌱  I’m currently learning abourt develops of full stack, I've the universiry of Engineer  of Computer, but I only have experience on area of support in IT, it's the first oportuniry that I had in my city for start in the  carrear and I learned a lot of things e could releated it with my interess, hardware, but now I think that need dedicated to discovery the others areas of my formation of University, deep my knowledge in developed that a meeted in my graduation.
+- 🌱  I’m currently learning abourt develops of full stack, I've the universiry of Engineer  of Computer, but I only have experience on area of support in IT, it's the first oportuniry that I had in my city for start in the  career and I learned a lot of things e could releated it with my interess, hardware, but now I think that need dedicated to discovery the others areas of my formation of University, deep my knowledge in developed that a meeted in my graduation.
 
 -I've the experiences ... (in preparation, but my account in Linkdin have all expirience).
 
