@@ -6,7 +6,7 @@
 
 -I've the experiences ... (in preparation, but my account in Linkdin have all expirience).
 
-- 💞️ I’m looking to learn in the new type of schools on the internet, Edtech, where you could learning with persons working in the areas, with videos class, and total interation online in you learned, avaid the old methods of learn presential.
+- 💞️ I’m looking to learn in the new type of schools on the internet, on Brazil call that Edtech, where you could learning with persons working in the areas, with videos class, and total interation online in you learned, avaid the old methods of learn presential.
 Between this learned, I'll intend to find a new job that could pratice my new knowledges about full stack, and star a new area in my profession carrear.
 
 - 📫How to reach me in my email Higorferreira.a@outlook.com and my account in Linkedin,https://www.linkedin.com/in/higor-alves-5aa678197/
